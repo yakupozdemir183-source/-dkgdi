@@ -1,0 +1,2 @@
+# -dkgdi
+İdkgdi
